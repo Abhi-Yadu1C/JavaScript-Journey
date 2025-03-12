@@ -1,6 +1,6 @@
                                   TRUST
                                 THE PROCESS
-                                   RNJOY
+                                   ENJOY
                                 THE JOURNEY
 
                              *** JAVASCRIPT ***        
